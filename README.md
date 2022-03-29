@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jerry2-design
 - 👀 I’m interested in ...BLOCKCHAIN DEVELOPMENT
 - 🌱 I’m currently learning ...WEB3.0
-- 💞️ I’m looking to collaborate on ...CRYPTO CURRENCY 
+- 💞️ I’m looking to collaborate on ...BLOCKCHAIN DEVELOPMENT
 - 📫 How to reach me ...Email; Ogbonnajerryfrank@gmail.com or Mobile No; 07032142169
 
 
